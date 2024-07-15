@@ -1,3 +1,6 @@
+oa878902@gmail.com 
+osama2535
+![Uploading IMG20240906235125.jpg…]()
 # BNB Smart Chain White Paper
 
 ## Revision
